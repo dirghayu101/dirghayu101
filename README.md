@@ -49,7 +49,7 @@ You and I both were always there and shall continue to be<br>
 You cherish sentience, the sentience that gave you an unquenchable, unsatiable, and all-consuming hunger<br>
 Is this really sentience or a mirage? A mirage of a lustrous oasis.<br>
 You, a traveler with hopes, chase this mirage, condemned to crave to no avail<br>
-That's your sentience, oh mighty human <br>
+That's your sentience, oh mighty human 
 
 <br>
 
