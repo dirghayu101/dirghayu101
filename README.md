@@ -38,7 +38,7 @@ The greatest of men drowns in your magnificence<br>
 Your glory was told before I came to be<br>
 Your glory shall be told until the last of humans breathe<br>
 I sometimes wanna trade shoes with you<br>
-But you don't have any sentience
+But you don't have any sentience<br>
 
 <br>
 
@@ -49,7 +49,7 @@ You and I both were always there and shall continue to be<br>
 You cherish sentience, the sentience that gave you an unquenchable, unsatiable, and all-consuming hunger<br>
 Is this really sentience or a mirage? A mirage of a lustrous oasis.<br>
 You, a traveler with hopes, chase this mirage, condemned to crave to no avail<br>
-That's your sentience, oh mighty human
+That's your sentience, oh mighty human <br>
 
 <br>
 
